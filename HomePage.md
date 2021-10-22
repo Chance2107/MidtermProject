@@ -18,6 +18,8 @@
 
 * I am currently a senior hoping to graduate in the spring of 2022 
 
+[Education](<https://github.com/Chance2107/MidtermProject/blob/main/Education.md>)
+
 * I was originally born in St. Peter’s Missouri but lived in Festus Missouri most of my life. 
 
 
