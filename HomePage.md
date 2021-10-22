@@ -14,10 +14,10 @@
 
 * I’m currently a forecaster at ABC17 and would one day like to work in St. Louis 
 
+[Career Choice](<https://github.com/Chance2107/MidtermProject/blob/main/CareerChoice.md>)
+
 * I am currently a senior hoping to graduate in the spring of 2022 
 
 * I was originally born in St. Peter’s Missouri but lived in Festus Missouri most of my life. 
 
-* I have a black male lab named Zeus who is currently 9 months old. 
 
-* When I win the lottery I plan on buying a lot of land and focus my efforts on conservation
