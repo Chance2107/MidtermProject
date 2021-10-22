@@ -22,4 +22,6 @@
 
 * I was originally born in St. Peter’s Missouri but lived in Festus Missouri most of my life. 
 
+[GrowingUp](<https://github.com/Chance2107/MidtermProject/blob/main/GrowingUp.md>)
+
 
